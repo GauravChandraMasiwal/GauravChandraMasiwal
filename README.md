@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Python,SQL,PowerBI,Tableau etc**
 
-- 📫 How to reach me **https://www.linkedin.com/in/gaurav-chandra-74431525b/**
+- 📫 How to reach me **https://www.linkedin.com/in/gauravchandraa/**
 
 - ⚡ Fun fact **I love to sing songs🎵 and play guitar 🎸**
 
